@@ -1,4 +1,4 @@
-Vishal Kobarne - Data Analyst 🌟
+**🌟 Vishal Kobarne - Data Analyst 🌟**
 
 ## 📋 Professional Summary
 I aspire to work in the field of data that challenges me and drives me to use my education and skills in a way that
